@@ -3,6 +3,8 @@
 
 ![image](https://github.com/user-attachments/assets/51c5d867-6b7e-4e58-9e19-7cfebc4bf773)
 
+![image](https://github.com/user-attachments/assets/c38f4cf1-c534-4b33-aebd-55c448213356)
+
 ## 세부페이지
 
 ![image](https://github.com/user-attachments/assets/1acd28e7-cef0-4124-9f4b-39416b44dbc5)
