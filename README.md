@@ -7,13 +7,15 @@
 
 ## 세부페이지
 
-![image](https://github.com/user-attachments/assets/b8575a26-e13b-442e-b703-43f72322f88f)
+![image](https://github.com/user-attachments/assets/4f3cf6ab-f575-406f-993f-96c29746e5e0)
+
 
 
 ![image](https://github.com/user-attachments/assets/1414dda1-5ce6-4d8e-b143-e09c9a887504)
 
 
-![image](https://github.com/user-attachments/assets/33d7b252-e19a-4dda-a213-4587baa4db1e)
+![image](https://github.com/user-attachments/assets/8aa4a762-ed68-472d-90d8-8e70e5c14056)
+
 
 
 ## 시연영상
